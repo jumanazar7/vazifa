@@ -1,0 +1,2 @@
+# vazifa
+maning vazifam
